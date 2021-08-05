@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @celestialntaion
+- 👀 I’m interested in learning to be ✨immaculate✨.
+- 🌱 I’m currently learning how to code better & be a better human in general.
+- 💞️ I’m looking to collaborate on art.
+- 📫 Reach me via email.
